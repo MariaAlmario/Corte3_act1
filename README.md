@@ -1,1 +1,0 @@
-# Corte3_act1
